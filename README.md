@@ -28,4 +28,4 @@
 ### Kontakt
 
 ##### Tel.: 883-930-513
-##### Email: natalijajed@gmail.c
+##### Email: natalijajed@gmail.com
