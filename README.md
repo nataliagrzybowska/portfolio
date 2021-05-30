@@ -1,4 +1,4 @@
-## Natalia Grzybowska 
+## Linki do artykułów
 
 1. [Przesądy i wierzenia związane z obrączkami ślubnymi](https://zaklad-zlotniczy.pl/obraczki-slubne-przesady-i-wierzenia/)
 2. [Czym są obrączki z soczewką](https://zaklad-zlotniczy.pl/czym-sa-obraczki-slubne-z-soczewka/)
@@ -23,5 +23,5 @@
 
 ### Kontakt
 
-Tel.: 883-930-513
-Email: natalijajed@gmail.com
+###### Tel.: 883-930-513
+###### Email: natalijajed@gmail.com
