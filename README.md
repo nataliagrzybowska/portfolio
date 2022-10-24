@@ -1,3 +1,5 @@
+## Pozycjonowane strony/sklepy
+1. [Manufaktura Zdrowia](https://manufaktura-zdrowia.com/)
 
 ## Linki do artykułów
 
